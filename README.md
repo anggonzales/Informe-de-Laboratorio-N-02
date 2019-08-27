@@ -1,2 +1,2 @@
 # Informe-de-Laboratorio-N-02
-Laboratorio N°02
+GONZALES CAVE , ANGEL GABRIEL (2017057861)
